@@ -1,4 +1,4 @@
-# 
+# Último Adobe After Effects herramientas para Mac OS | Oficial Adobe After Effects herramientas para PC Windows. Con cámara virtual y ecualizador — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
